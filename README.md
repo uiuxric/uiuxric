@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @uiuxric
 - 👀 I’m interested in Product Design
 - 🌱 I’m currently learning UI/UX
-- 💞️ I’m looking to collaborate on .Graphic Designers
+- 💞️ I’m looking to collaborate on Graphic Designers
 - 📫 How to reach me @infjcritic
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I'm introverted 😒
